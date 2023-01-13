@@ -1,0 +1,6 @@
+# My-resume
+👋 Hi, I’m @VinokurUfa
+👀 I’m interested in Photographer📸 NFT Creating 🎨
+🌱 I’m currently learning ...
+💞️ I’m looking to collaborate on web3 NFT project ...
+📫 How to reach me vinokurcoinlist@gmail.com
